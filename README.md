@@ -1,0 +1,1 @@
+# Strategic-Supplier-Partnership-Analysis-Whirlpool-Inland-Steel
